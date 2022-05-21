@@ -1,8 +1,6 @@
 ## Hi, Mewhaku or ShiinA  here.
 
-## mewhaku  for  coding 
-
-## ShiinA for gaming
+### ID mewhaku  for  coding and ShiinA for gaming
 
 #### Platform&Tools
 
